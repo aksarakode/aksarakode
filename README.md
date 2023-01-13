@@ -17,3 +17,4 @@ Tempat berbagi Ilmu Pengetahuan Tentang Teknologi :  https://aksarakode.com/
 🚀 [Gratis! Cara Transfer Ke Rekening Bank Pakai DANA](https://aksarakode.com/cara-transfer-ke-rekening-bank-pakai-dana/)  
 🚀 [Mudah Banget! Cara Sawer Di Saweria Pakai DANA](https://aksarakode.com/sawer-di-saweria-pakai-dana/)  
 🚀 [Simpel! Cara Bayar Indihome Lewat mBanking BCA](https://aksarakode.com/bayar-indihome-lewat-mbanking-bca/)  
+🚀 [2 Cara Transfer Pulsa Telkomsel dengan Mudah dan Cepat!](https://aksarakode.com/cara-transfer-pulsa-telkomsel/)  
